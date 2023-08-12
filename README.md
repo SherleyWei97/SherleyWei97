@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SherleyWei97
+- 👀 I’m interested in rock&roll music
+- 🌱 I’m currently learning bioinformatic
